@@ -1,2 +1,1 @@
-# Carnesita-con-sopa
-WE'RE GONNA TAKE IT, NO WE AIN'T GONNA TAKE IT
+
